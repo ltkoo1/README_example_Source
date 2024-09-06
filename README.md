@@ -11,6 +11,7 @@ ___
 _기울기2_
 
 
+![1 jpg](https://github.com/user-attachments/assets/3e15defc-4326-423d-8cc0-f0e74247fe15)
 
 
 # 글자크기1
